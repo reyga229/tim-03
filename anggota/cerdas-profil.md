@@ -1,1 +1,0 @@
-Nama: Cerdas Abdul Jabar
